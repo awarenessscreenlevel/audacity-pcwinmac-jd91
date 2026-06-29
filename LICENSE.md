@@ -1,4 +1,4 @@
-# 
+# Actualizado Audacity filtros para Mac OS | VIP Audacity filtros para PC Windows. Con grabación y vista previa en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
